@@ -1,4 +1,4 @@
-# 
+# automatic NFT Mint Bot for nft mint bot | royalty-calculator & multi-wallet-support offers the most advanced nft mint bot, with royalty-calculator and multi-wallet-support. Ideal
 
 
 
